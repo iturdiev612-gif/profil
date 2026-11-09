@@ -156,7 +156,7 @@ I enjoy Japanese aesthetics, thoughtful layouts, and interfaces that are easy to
 
 <p align="center">
   <a href="mailto:iturdiev612@gmail.com">iturdiev612@gmail.com</a>
-  <br />
+  <br /> 
   <a href="https://wa.me/996999425453">+996 999 425 453</a>
   &nbsp; · &nbsp;
   <a href="https://wa.me/996501700249">+996 501 700 249</a>
